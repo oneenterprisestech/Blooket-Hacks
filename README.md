@@ -1,3 +1,7 @@
+# CREDIT
+
+Credit for all hacks go to lol-jude. See https://github.com/lol-jude/Blooket-Hacks/ for the original code.
+
 TO THE PEOPLE  SAYING THESE ARE FAKE AND WILL GET YOU BANNED READ BELOW:
 
 🌟PLEASE STAR THIS PROJECT🌟
